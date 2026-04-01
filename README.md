@@ -1,0 +1,1 @@
+# Stoic_thoughts
